@@ -1,1 +1,1 @@
-Solo basta co descargar el archivo y ejecutar 
+Solo basta con descargar el archivo y ejecutar 
